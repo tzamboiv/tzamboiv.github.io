@@ -29,6 +29,6 @@
 
   Two of my film photos were part of this group exhibition.
 
-- <a href="https://blogs.cuit.columbia.edu/sodal/" target="_blank">"SODAL Working Group"</a>
+- <a href="https://blogs.cuit.columbia.edu/sodal/" target="_blank">SODAL Working Group</a>
 
   The website for the working group I organize. Feel free to email me if you are interested in participating!
